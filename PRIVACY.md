@@ -1,4 +1,4 @@
-개인정보 처리방침 / Privacy Policy
+개인정보 처리방침 / Privacy Policy 
 
 시행일 / Effective date: 2026-11-15
 
